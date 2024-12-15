@@ -1,4 +1,9 @@
-## Hi there 👋
+## Hi 👋, I'm Ansub
+
+#### 👾 About Me
+- ✨ &nbsp;I am a truth seeker and rabbit hole explorer
+- 🤡 I have experience working in multiple startups
+- 💻 I am building something special for everyone...
 
 <!--
 **OriginalGrubbsy/originalgrubbsy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
