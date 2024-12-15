@@ -1,4 +1,4 @@
-## Hi 👋, I'm Ansub
+## Hi 👋, I'm Grübbs
 
 #### 👾 About Me
 - ✨ &nbsp;I am a truth seeker and rabbit hole explorer
